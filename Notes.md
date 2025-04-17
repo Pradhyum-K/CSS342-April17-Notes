@@ -19,12 +19,10 @@ Notes for Guest Lecture by Stella Chen:
             - Vet exam
             - SPOT Program (90 days)
             - Very stressful for an animal to be in a shelter
-            -                                                                                                                                                             
-
-
-
-
-
-
+   - Inspiration for fostering comes from Coco, Stella's cat who passed away in 2023
+   - Steps to fostering animals: (1) planning (2) care (3) notes (4) communication
+            - Take a lot of notes to make sure the foster animal has a comfortable experience
+   - 
+                                                                                                                                             
 2. As a CSSE major, would we work in a shelter?
-   - Yes, 
+   - Yes, I would
