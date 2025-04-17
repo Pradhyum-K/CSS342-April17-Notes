@@ -13,10 +13,18 @@ Notes for Guest Lecture by Stella Chen:
    - Volunteer work:
        - Volunteers at Seatlle Humane
        - 3 things she does at the shelter: (1) onsite cat care (2) foster cats (3) train new volunteers
-       - 
+   - Fostering:
+       - How a shelter works?
+            - Intake
+            - Vet exam
+            - SPOT Program (90 days)
+            - Very stressful for an animal to be in a shelter
+            -                                                                                                                                                             
+
+
 
 
 
 
 2. As a CSSE major, would we work in a shelter?
-   - 
+   - Yes, 
